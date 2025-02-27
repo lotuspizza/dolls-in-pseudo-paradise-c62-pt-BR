@@ -69,21 +69,19 @@ Mas isso não importa mais, eu sou o último que restou.
 Não tenho mais nenhum apego a esse mundo tão cheio de mentirosos.  
 Desta vez, amarrei uma boa, forte corda no teto e chutei para longe a cadeira alta.  
 Desta vez, meu corpo nunca mais tocará o chão.   
-___
+  
 Depois disso, não restaram homens honestos. 
-___
 ### *A Curiosa Vida Cotidiana da Sacerdotisa Voadora*
 A sacerdotisa do paraíso passou um verão tranquilo como todos os outros.  
 Em um dia de verão, isso foi escrito no diário da sacerdotisa. 
-___
+  
 X de agosto  
 Os eventos de hoje começaram quando encontrei uma linda garota loira saindo de um prédio de estilo ocidental abandonado nas profundezas da floresta.  
 Parece que já a vi em algum lugar antes, mas não me lembro de todos os detalhes. A moça, maliciosamente, colocou a língua para fora e rapidamente curvou-se enquanto caminhava em direção à saída do paraíso, rindo alto. Que garota mais estranha.  
 Pensando bem, essa garota era a única mulher entre os oito homens honestos, não que isso realmente importe. Oh, hoje foi apenas mais um dia entediante...   
-___
+  
 Há oito humanos a menos neste paraíso, “Gensokyo”, e sete cadáveres foram levados em segurança por youkais. Gensokyo perdeu homens honestos para sempre. É apenas uma alteração na contagem populacional.  
 Não é uma notícia importante. 
-___
 ##### Composição/Arranjo Musical e História: ZUN
 ## Saudações do Compositor
 Com certeza é um prazer conhecê-lo, me chamo ZUN. Depois de um longo hiato, comecei a fazer música novamente e, involuntariamente, lancei um CD musical. Quanto ao conteúdo, ele vai contra as tendências atuais, sendo todo voltado para o amor retrô. Em particular, é mais para pessoas que gostam de músicas de jogos simples de muito tempo atrás, em vez daquelas que gostam de músicas de jogos no estilo dance que parecem ser populares hoje em dia. (Uma minoria) E, me parece ser bem feminina, então espero que você ouça se for isso que gosta. 
