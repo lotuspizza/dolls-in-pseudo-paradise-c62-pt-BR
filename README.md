@@ -2,40 +2,40 @@
 ## História
 Nossa aldeia de homens honestos consistia originalmente de apenas oito pessoas.  
 Todos nós nos mudamos para uma montanha no leste. Dois anos de vida cotidiana honesta e entediante passaram por nós.  
-Um dia, um de nós encontrou um pequeno buraco perto de um pessegueiro.
+Um dia, um de nós encontrou um pequeno buraco perto de um pessegueiro.  
 Sim, depois disso, adentramos esse paraíso.  
 E, logo após isso, deixei de ser humano.   
 ### *Lenda de Hourai*
-Como o mais curioso do nosso grupo, fui direto para as profundezas da floresta. Lá, fui parado por um misterioso pierrot que, por algum motivo, parecia estar entregando alegremente o Ramo de Hourai. No momento em que tentei pegá-lo, parecia que minha cabeça havia sido separada do meu corpo. Eu não conseguia me mover nem emitir sons, então nunca mais consegui ver os outros.  
+Como o mais curioso do nosso grupo, fui direto para as profundezas da floresta. Lá, fui parado por um misterioso *pierrot* que, por algum motivo, parecia estar entregando alegremente o Ramo de Hourai. No momento em que tentei pegá-lo, parecia que minha cabeça havia sido separada do meu corpo. Eu não conseguia me mover nem emitir sons, então nunca mais consegui ver os outros.  
 Depois disso, restaram sete homens honestos. 
 ### *Dicromática Borboleta de Lótus ~ Vermelha e Branca*
 De manhã, eu podia ver uma sacerdotisa vestida de vermelho e branco dançando sobre o lago. Como era o mais madrugador do nosso grupo, fiquei muito tempo encantado com aquela dança impiedosa e vigorosa. Por fim, começou a chover e, no momento em que recuperei os meus sentidos, a sacerdotisa havia desaparecido. 
 ### *Adorável Monte de Flores de Cerejeira ~ Flor Japonesa*
-A chuva não sabia quando parar. A sacerdotisa estava completamente encharcada e estava desaparecendo como se estivesse derretendo na chuva. Enquanto eu a observava, a chuva se transformou em uma tempestade terrível, e eu, o mais belo, fui capturado por um pierrot. Ele desapareceu imediatamente na tempestade, e eu não consegui voltar para onde os outros estavam.  
+A chuva não sabia quando parar. A sacerdotisa estava completamente encharcada e estava desaparecendo como se estivesse derretendo na chuva. Enquanto eu a observava, a chuva se transformou em uma tempestade terrível, e eu, o mais belo, fui capturado por um *pierrot*. Ele desapareceu imediatamente na tempestade, e eu não consegui voltar para onde os outros estavam.  
 Depois disso, restaram seis homens honestos. 
 ### *Shanghai Alice de Meiji 17*
-Naquela noite, os seis homens deram uma festa no estilo de um país estrangeiro. Eu, o mais jovem, ainda não podia beber álcool nem fumar ópio, por isso achei tudo terrivelmente entediante. Escapei secretamente do local da festa, mas na escuridão fui pego por um sinistro pierrot. Fui imediatamente decapitado. Nunca mais serei capaz de sentir nem mesmo tédio.  
+Naquela noite, os seis homens deram uma festa no estilo de um país estrangeiro. Eu, o mais jovem, ainda não podia beber álcool nem fumar ópio, por isso achei tudo terrivelmente entediante. Escapei secretamente do local da festa, mas na escuridão fui pego por um sinistro *pierrot*. Fui imediatamente decapitado. Nunca mais serei capaz de sentir nem mesmo tédio.  
 Depois disso, restaram cinco homens honestos. 
 ### *Conto de Fantasia Oriental*
 Corri até não conseguir mais respirar. Sendo o mais covarde do grupo, eu tinha muito medo desse paraíso. Era algo de se esperar, mas não importava o quanto eu corresse, eu não conseguia encontrar um caminho de volta para nossa casa. Até mesmo meu amor havia desaparecido, e achei que não tinha mais motivos para viver, então, em meu desespero, joguei uma corda em um galho e me enforquei.  
 ...No entanto, de alguma forma, ainda estou consciente. Será que a corda era muito fraca...?  
 Eu, o mais covarde do grupo, havia renascido. Não tenho nada a perder, então por que não tento fingir ser humano apenas mais uma vez? 
 ### *Boneca Enigmática*
-Quando acordamos, nós cinco nos encontramos na escuridão. De acordo com um deles, parecia que tínhamos sido sequestrados por um misterioso pierrot. Os outros quatro estavam elaborando planos de fuga bem infantis. Como o mais sábio do grupo, eu sabia que não deveríamos tentar, mas me vi incapaz de dizer qualquer coisa. Os quatro executaram seus planos como eu esperava, mas, ao contrário de minhas expectativas, foram bem-sucedidos. Depois disso, nunca mais consegui escapar. Passei algum tempo sozinho na interminável escuridão e logo percebi que o pierrot estava entre nós o tempo todo. De repente, senti algo atrás de mim, mas não resisti. Algo quente escorreu por minhas costas.   
+Quando acordamos, nós cinco nos encontramos na escuridão. De acordo com um deles, parecia que tínhamos sido sequestrados por um misterioso *pierrot*. Os outros quatro estavam elaborando planos de fuga bem infantis. Como o mais sábio do grupo, eu sabia que não deveríamos tentar, mas me vi incapaz de dizer qualquer coisa. Os quatro executaram seus planos como eu esperava, mas, ao contrário de minhas expectativas, foram bem-sucedidos. Depois disso, nunca mais consegui escapar. Passei algum tempo sozinho na interminável escuridão e logo percebi que o *pierrot* estava entre nós o tempo todo. De repente, senti algo atrás de mim, mas não resisti. Algo quente escorreu por minhas costas.   
 ### *Devaneio Circense*
-Nossa fuga foi um grande sucesso. Achamos que éramos incrivelmente espertos e decidimos voltar para nossa nova morada neste paraíso.
+Nossa fuga foi um grande sucesso. Achamos que éramos incrivelmente espertos e decidimos voltar para nossa nova morada neste paraíso.  
 Nunca nos ocorreu de desconfiar de qualquer um dos outros membros do nosso grupo.  
-Éramos todos homens honestos. Éramos os mais próximos dos amigos... 
+Éramos todos homens honestos. Éramos os mais próximos dos amigos...  
 ### *Floresta das Bonecas*
 Esse paraíso havia erguido um perfeito edifício para servir como nossa casa. Um prédio de aparência antiga, de estilo ocidental, profundamente dentro da floresta, sempre nos serviu alegremente. Mas sempre há muita comida esperando por nós, e só conseguimos consumir metade dela.  
 Nosso vilarejo de homens honestos havia caído para a metade de sua força antes que percebêssemos. 
 ### *Bruxa da Poção Amorosa*
-À tarde, teríamos nossa habitual hora do chá. E todas as vezes eu tomava um café amargo, mas hoje ele parece estar um pouco mais doce.
-E pensar que isso foi por causa da poção do amor que foi colocada nele...
-Eu, o mais maduro de nosso grupo, me apaixonei por um lindo pierrot e adormeci em um estado de êxtase.  
+À tarde, teríamos nossa habitual hora do chá. E todas as vezes eu tomava um café amargo, mas hoje ele parece estar um pouco mais doce.  
+E pensar que isso foi por causa da poção do amor que foi colocada nele...  
+Eu, o mais maduro de nosso grupo, me apaixonei por um lindo *pierrot* e adormeci em um estado de êxtase.  
 Depois disso, restaram três homens honestos. 
 ### *Reencarnação*
-Vi meu amigo, que claramente havia sido envenenado. É impossível que tenha sido suicídio. Afinal de tudo, eu escolhi o café certo e o levei para os quartos de todo mundo. Não contei aos outros dois sobre sua morte. Por ser o mais cauteloso do nosso grupo, nunca comi ou bebi nada que não tivesse sido preparado por mim. Desesperadamente, tentei ficar acordado até que os dois estivessem dormindo. Dormimos em quartos separados e trancamos as portas. Sim, havia um dos dois de quem eu suspeitava em particular.
+Vi meu amigo, que claramente havia sido envenenado. É impossível que tenha sido suicídio. Afinal de tudo, eu escolhi o café certo e o levei para os quartos de todo mundo. Não contei aos outros dois sobre sua morte. Por ser o mais cauteloso do nosso grupo, nunca comi ou bebi nada que não tivesse sido preparado por mim. Desesperadamente, tentei ficar acordado até que os dois estivessem dormindo. Dormimos em quartos separados e trancamos as portas. Sim, havia um dos dois de quem eu suspeitava em particular.  
 O som de uma estaca sendo fincada em uma árvore soou de algum lugar próximo. Qual deles estava fazendo isso? Meu rosto se contorceu de terror na escuridão. Minhas mãos e pés latejavam de dor ao mesmo tempo que o som. Era como se eles estivessem sendo pregados em alguma coisa. Pensei em falar com uma médium, mas então me dei conta de algo.  
 É isso mesmo, percebi que eu estava sendo pregado em uma árvore e não conseguia me mover. Mas quem estava fazendo isso comigo?  
 Então, o último prego atravessou minha testa.  
@@ -58,7 +58,7 @@ Em troca de minha vida, eu queria ter aquela visão novamente. No entanto, apena
 ### *Eterna Sacerdotisa*
 Depois disso, eu, que havia renascido, fui atacado por uma intensa sonolência ontem à noite. Parecia que minha cabeça estava sendo aberta. Não consigo me lembrar de nada de ontem à noite, mas parece que eu havia tido um longo sonho. Teria sido ainda melhor se eu não tivesse que enfrentar a realidade diante de mim...  
 Mas que diabos? Um foi envenenado com café, um foi pregado em uma árvore, outro foi decapitado... Não consigo acreditar nisso.  
-Preparei a cadeira e a corda e murmurei para mim mesmo uma última vez.
+Preparei a cadeira e a corda e murmurei para mim mesmo uma última vez.  
 Como ele havia morrido por último, então só poderia ter sido aquele que foi envenenado pelo café.  
 Em outras palavras... é assim que são as coisas?  
 Deve ser assim mesmo.  
@@ -71,15 +71,15 @@ ___
 Depois disso, não restaram homens honestos. 
 ___
 ### *A Curiosa Vida Cotidiana da Sacerdotisa Voadora*
-A sacerdotisa do paraíso passou um verão tranquilo como todos os outros.
+A sacerdotisa do paraíso passou um verão tranquilo como todos os outros.  
 Em um dia de verão, isso foi escrito no diário da sacerdotisa. 
 ___
-X de agosto
+X de agosto  
 Os eventos de hoje começaram quando encontrei uma linda garota loira saindo de um prédio de estilo ocidental abandonado nas profundezas da floresta.  
 Parece que já a vi em algum lugar antes, mas não me lembro de todos os detalhes. A moça, maliciosamente, colocou a língua para fora e rapidamente curvou-se enquanto caminhava em direção à saída do paraíso, rindo alto. Que garota mais estranha.  
 Pensando bem, essa garota era a única mulher entre os oito homens honestos, não que isso realmente importe. Oh, hoje foi apenas mais um dia entediante...   
 ___
-Há oito humanos a menos neste paraíso, “Gensokyo”, e sete cadáveres foram levados em segurança por youkais. Gensokyo havia perdido homens honestos para sempre. É apenas uma alteração na contagem populacional.
+Há oito humanos a menos neste paraíso, “Gensokyo”, e sete cadáveres foram levados em segurança por youkais. Gensokyo perdeu homens honestos para sempre. É apenas uma alteração na contagem populacional.  
 Não é uma notícia importante. 
 ___
 ##### Composição/Arranjo Musical e História: ZUN
