@@ -1,4 +1,6 @@
 # Dolls in Pseudo Paradise / Bonecas no Pseudo Paraíso (versão Comiket 62) (Tradução)
+<img src="cover.png" alt="capa de Dolls in Pseudo Paradise (versão Comiket 62)" width="500"/>
+
 ## História
 Nossa aldeia de homens honestos consistia originalmente de apenas oito pessoas.  
 Todos nós nos mudamos para uma montanha no leste. Dois anos de vida cotidiana honesta e entediante passaram por nós.  
