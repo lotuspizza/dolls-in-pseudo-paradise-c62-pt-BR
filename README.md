@@ -15,7 +15,7 @@ De manhã, eu podia ver uma sacerdotisa vestida de vermelho e branco dançando s
 ### *Adorável Monte de Flores de Cerejeira ~ Flor Japonesa*
 A chuva não sabia quando parar. A sacerdotisa estava completamente encharcada e estava desaparecendo como se estivesse derretendo na chuva. Enquanto eu a observava, a chuva se transformou em uma tempestade terrível, e eu, o mais belo, fui capturado por um *pierrot*. Ele desapareceu imediatamente na tempestade, e eu não consegui voltar para onde os outros estavam.  
 Depois disso, restaram seis homens honestos. 
-### *Shanghai Alice de Meiji 17*
+### *Xangai Alice de Meiji 17*
 Naquela noite, os seis homens deram uma festa no estilo de um país estrangeiro. Eu, o mais jovem, ainda não podia beber álcool nem fumar ópio, por isso achei tudo terrivelmente entediante. Escapei secretamente do local da festa, mas na escuridão fui pego por um sinistro *pierrot*. Fui imediatamente decapitado. Nunca mais serei capaz de sentir nem mesmo tédio.  
 Depois disso, restaram cinco homens honestos. 
 ### *Conto de Fantasia Oriental*
@@ -75,10 +75,10 @@ Depois disso, não restaram homens honestos.
 A sacerdotisa do paraíso passou um verão tranquilo como todos os outros.  
 Em um dia de verão, isso foi escrito no diário da sacerdotisa. 
   
-X de agosto  
-Os eventos de hoje começaram quando encontrei uma linda garota loira saindo de um prédio de estilo ocidental abandonado nas profundezas da floresta.  
-Parece que já a vi em algum lugar antes, mas não me lembro de todos os detalhes. A moça, maliciosamente, colocou a língua para fora e rapidamente curvou-se enquanto caminhava em direção à saída do paraíso, rindo alto. Que garota mais estranha.  
-Pensando bem, essa garota era a única mulher entre os oito homens honestos, não que isso realmente importe. Oh, hoje foi apenas mais um dia entediante...   
+*X de agosto*  
+*Os eventos de hoje começaram quando encontrei uma linda garota loira saindo de um prédio de estilo ocidental abandonado nas profundezas da floresta.*  
+*Parece que já a vi em algum lugar antes, mas não me lembro de todos os detalhes. A moça, maliciosamente, colocou a língua para fora e rapidamente curvou-se enquanto caminhava em direção à saída do paraíso, rindo alto. Que garota mais estranha.*  
+*Pensando bem, essa garota era a única mulher entre os oito homens honestos, não que isso realmente importe. Oh, hoje foi apenas mais um dia entediante...*   
   
 Há oito humanos a menos neste paraíso, “Gensokyo”, e sete cadáveres foram levados em segurança por youkais. Gensokyo perdeu homens honestos para sempre. É apenas uma alteração na contagem populacional.  
 Não é uma notícia importante. 
